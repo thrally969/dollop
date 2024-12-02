@@ -116,7 +116,7 @@ The chill of winter tightens its grip around me as I ponder this dark possibilit
 # December 2
 >*The dreary winter light filters through the curtains, casting a pallid glow upon my disheveled form as I emerge from the sanctuary of slumber. Twelve o'clock ticks by on the clock, marking a staggering fourteen hours since I last closed my eyes.*
 
-Yesterday's early rise, coupled with the unsettling discomfort in my gutand and ill-advised indulgence in a light alcoholic drink, has clearly taken its toll. As I lie here, still wrapped in the remnants of sleep, it seems the sickness has retreated, leaving only a faint echo of its presence.
+Yesterday's early rise, coupled with the unsettling discomfort in my gut and and ill-advised indulgence in a light alcoholic drink, has clearly taken its toll. As I lie here, still wrapped in the remnants of sleep, it seems the sickness has retreated, leaving only a faint echo of its presence.
 
 >*However, the respite from illness brings with it new concerns, as I find myself pondering the predicament that has come to define my existence.*
 
